@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LevelFerret537
+- 👀 I’m interested in ROBLOX, BFDI and HTML.
+- 🌱 I’m currently learning HTML.
+- 💞️ I’m looking to make a site.
+- 📫 Reach me on Discord: rarebride#4696
