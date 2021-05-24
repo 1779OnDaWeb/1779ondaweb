@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @LevelFerret537
-- 👀 I’m interested in YouTube, Television and HTML.
-- 🌱 I’m currently learning Mathematics.
-- 💞️ I’m wanting to get an editing software, just so i could make YTPs.
-- 📫 Reach me nowhere.
+Hello! I'm uhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
