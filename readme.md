@@ -1,2 +1,2 @@
-                                                                      Welcome to the LSG GitHub!
+                                                                        Welcome to my GitHub!
                                                                     <<making stuff because i can>>
